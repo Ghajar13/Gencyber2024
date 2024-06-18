@@ -1,3 +1,4 @@
 # Gencyber2024
-![image](https://github.com/Tennis1324/Gencyber2024/assets/85146128/effcfaee-8cf3-49c9-89c6-26a6be367604)
+![image](https://github.com/Tennis1324/Gencyber2024/assets/85146128/5949fc5d-4267-4c32-9235-5b26fd25059c)
+
 
