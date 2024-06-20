@@ -15,4 +15,4 @@ CPU
 
 ![image](https://github.com/Tennis1324/Gencyber2024/assets/85146128/03f3736d-b3ac-4a9f-b7b3-fa5c9662fe72)
 
-<p/>
+</p>
